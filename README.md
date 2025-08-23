@@ -1,5 +1,2 @@
- 
 
-<img src=https://tenor.com/tnr0Iq32ev6.gif width="1000">
-<!--boiiiiiii
-**tinteddreams/tinteddreams** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile
+<img src="https://i.pinimg.com/736x/96/b4/b0/96b4b087493856ee7e1aa48f08f70ca7.jpg" width="1000">

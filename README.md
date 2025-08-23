@@ -6,3 +6,7 @@
 ⋆☀︎｡ She / her
 
 𓂃 𓈒𓏸 C + H / W2i 
+
+⋒. I'm  usually afk usually listening to music, watching yt/Netflix, or just sitting and watching my screen..
+
+<img src="https://i.pinimg.comhttps://tenor.com/tnr0Iq32ev6.gif" width="1000">

@@ -3,12 +3,16 @@
 
 ྀིྀི Pinkberry ∘˙○˚.
 
-⋆☀︎｡ She / her
+⋆☀︎｡ *She / her*
 
 𓂃 𓈒𓏸 C + H / W2i 
 
 ⋒. I'm  usually afk usually listening to music, watching yt/Netflix, or just sitting and watching my screen..
+
 ↻ ◁ || ▷ ↺  8:05
 
 𓂃 ོ☼𓂃 ( PLEASEEEE SIGN MY STRAW!!! I promise I'm cool) ∘˙○˚
 
+︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
+
+okey bye now!!! *fades away* 

@@ -19,5 +19,5 @@
 
 okey bye now!!! *fades away* 
 
-<img src="[1000019583](https://github.com/user-attachments/assets/8dbedd62-d24e-4810-a095-694308844436
-" width="1000">
+
+<img src="https://https://www.pinterest.com/i/3Ru4FFLoC/" width="1000">

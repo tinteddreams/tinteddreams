@@ -18,5 +18,6 @@
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
 okey bye now!!! *fades away* 
-<img src="https://![1000019583](https://github.com/user-attachments/assets/8dbedd62-d24e-4810-a095-694308844436)
+
+<img src="[1000019583](https://github.com/user-attachments/assets/8dbedd62-d24e-4810-a095-694308844436
 " width="1000">

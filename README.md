@@ -20,4 +20,4 @@
 okey bye now!!! *fades away* 
 
 
-<img src="https://https://www.pinterest.com/i/3Ru4FFLoC/" width="1000">
+<img src="https://www.pinterest.com/i/3Ru4FFLoC/" width="1000">

@@ -17,6 +17,6 @@
 
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
-@M4GICA , @pochitchiw , @albedoyaoi , @Sc4r7V4mp1r3 and Eavs BEST POOKIES EVERER!!!!! (AND ALL MY GREEN NAMES!!) 
+probably a hyacine fan (I don't play hsr btw,,)
 
 okey bye now!!! *fades into dust*

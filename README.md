@@ -19,4 +19,6 @@
 
 probably a hyacine fan (I don't play hsr btw,,)
 
+https://autumnskies.straw.page } https://pinkberry.straw.page { https://pinklandscape.straw.page
+
 okey bye now!!! *fades into dust*

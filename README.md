@@ -1,4 +1,4 @@
-<img src="https://www.pinterest.com/i/6rJ5n8rQC/" width="1000">
+
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
 ( made for pt use only!!)

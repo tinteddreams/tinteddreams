@@ -1,4 +1,4 @@
-![Sua](/sua.jpg)
+
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
 ( made for pt use only!!)

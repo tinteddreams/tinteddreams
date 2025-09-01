@@ -17,7 +17,7 @@
 
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
-( alien stage !!)
+( working on a more complex and simple strawpage!! )
 
 
 https://autumnskies.straw.page } https://pinkberry.straw.page { https://pinklandscape.straw.page

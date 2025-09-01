@@ -17,7 +17,7 @@
 
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
-( working on a more complex and simple strawpage!! )
+( THANKS FOR 100 GITHUB FOLLOWERS !!! )
 
 
 https://autumnskies.straw.page } https://pinkberry.straw.page { https://pinklandscape.straw.page

@@ -17,7 +17,7 @@
 
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
-probably a hyacine fan (I don't play hsr btw,,)
+( crashing out bc i cant have a sua image )
 
 
 https://autumnskies.straw.page } https://pinkberry.straw.page { https://pinklandscape.straw.page

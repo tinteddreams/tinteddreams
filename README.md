@@ -1,4 +1,4 @@
-<img src="https://pin.it/5biTHADZ5" width="1000">
+<img src="https://i.pinimg.com/736x/19/29/b9/1929b9680bcf014daa963753e84e6c0c.jpg" width="1000">
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
 ( made for pt use only!!)
@@ -17,7 +17,7 @@
 
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
-( crashing out bc i cant have a sua image )
+( alien stage !!)
 
 
 https://autumnskies.straw.page } https://pinkberry.straw.page { https://pinklandscape.straw.page

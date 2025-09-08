@@ -17,7 +17,7 @@
 
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
-( THANKS FOR 100 GITHUB FOLLOWERS !!! )
+( i wanna remake my strawpage again hurhrguruh !!! )
 
 
 https://irontored.straw.page 

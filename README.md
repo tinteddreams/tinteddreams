@@ -20,6 +20,6 @@
 ( i wanna remake my strawpage again hurhrguruh !!! )
 
 
-https://irontored.straw.page 
+https://truestar.straw.page
 
 okey bye now!!! *fades into dust*

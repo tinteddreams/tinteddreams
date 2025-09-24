@@ -17,7 +17,7 @@
 
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
-( i wanna remake my strawpage again hurhrguruh !!! )
+( Furina/nice/sigma/archon] thinks: NEUVILLETTE YOUR OFFICE LOOKS LIKE A DUMPSTER!!!!! YOU STINKEY RAT -me )
 
 
 https://truestar.straw.page

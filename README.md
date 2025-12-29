@@ -22,4 +22,6 @@
 
 https://truestar.straw.page
 
-okey bye now!!! *fades into dust*
+okey bye now!!! *fades into dust* 
+
+(HIHIH  UMMMM SORRY FOR MY INACTIVITY!!!😿😿 I've been busy with school and grades, and also I haven't had the motivation to get on pt😿😿 SORRRY!!!! Happy new year to all my green names!!!!!!!) 

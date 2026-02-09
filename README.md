@@ -3,25 +3,17 @@
 
 ( made for pt use only!!)
 
-ྀིྀི Pinkberry ∘˙○˚.
+ Pinkberry ⊹ ࣪ 
 
-⋆☀︎｡ *She / her*
+⋆☀︎｡ *She / her !! 🌔
 
-𓂃 𓈒𓏸 C + H / W2i 
+➜ ➜ ➜ ➜ C + H / W2i 
 
-⋒. I'm  usually afk usually listening to music, watching yt/Netflix, or just sitting and watching my screen..
+⋆✴︎ ( PLEASEEEE SIGN MY STRAW!!! Ill give you a free cookie 😎😎) ∘˙○˚
 
-↻ ◁ || ▷ ↺  8:05
-
-𓂃 ོ☼𓂃 ( PLEASEEEE SIGN MY STRAW!!! I promise I'm cool) ∘˙○˚
-
-︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
-
-( Furina/nice/sigma/archon] thinks: NEUVILLETTE YOUR OFFICE LOOKS LIKE A DUMPSTER!!!!! YOU STINKEY RAT -me )
-
+────── ⋆⋅⭐️⋅⋆ ──────
 
 https://puella-magica.straw.page
 
-okey bye now!!! *fades into dust* 
+okey bye now!!! -⊹°☀️ 
 
-(HIHIH  UMMMM SORRY FOR MY INACTIVITY!!!😿😿 I've been busy with school and grades, and also I haven't had the motivation to get on pt😿😿 SORRRY!!!! Happy new year to all my green names!!!!!!!) 

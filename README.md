@@ -9,7 +9,7 @@
 
 ➜ ➜ ➜ ➜ C + H / W2i 
 
-⋆✴︎ ( PLEASEEEE SIGN MY STRAW!!! Ill give you a free cookie 😎😎) ∘˙○˚
+⋆✴︎ ( PLEASEEEE SIGN MY STRAW!!! Ill give you a free cookie + im super cool 😎😎) ∘˙○˚
 
 ────── ⋆⋅⭐️⋅⋆ ──────
 

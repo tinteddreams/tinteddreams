@@ -13,7 +13,7 @@
 
 ────── ⋆⋅⭐️⋅⋆ ──────
 
-https://puella-magica.straw.page
+MAKING NEW STRAW
 
 okey bye now!!! -⊹°☀️ 
 

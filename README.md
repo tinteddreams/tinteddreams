@@ -13,7 +13,7 @@
 
 ────── ⋆⋅⭐️⋅⋆ ──────
 
-https://columbina777.straw.page
+NEW STRAWPAGE SOON
 
 okey bye now!!! -⊹°☀️ 
 
